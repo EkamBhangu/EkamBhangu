@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @EkamBhangu
-- 👀 I’m interested in sxxx videos
+- 👀 I’m interested in playing sports
 - 🌱 I’m currently learning b tag
 - 💞️ I’m looking to collaborate on cute girls
 - 📫 How to reach me postoffice
